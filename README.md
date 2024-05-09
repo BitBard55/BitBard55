@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @simplynerd09
+- 👋 Hi, I’m @simplynerd01
 - 👀 I’m interested in Coding /Problem Solving /Reading /Research
 - 🌱 I’m currently targeting to prepare consistently for College Exams.
 - 💞️ I’m looking to collaborate on ...
